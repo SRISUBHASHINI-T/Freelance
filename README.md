@@ -1,1 +1,1 @@
-This is the freelance work I did to the Shivasakthi Agency in Tamil Nadu.The report pertains to the company's sales.
+In my company, I spearheaded a mini project focused on optimizing the sales and demand for filling knife materials—a product that was already in high demand in the market. Leveraging strategic insights, I implemented targeted approaches to enhance sales, attract new customers, and solidify in market
